@@ -1,0 +1,1 @@
+mcqs for trainings purpose
